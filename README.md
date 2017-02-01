@@ -1,5 +1,8 @@
 # DPeli
 
+## Yugioh La piramide de la Luz
+https://mega.nz/#!s9BBxQYT!iGUsnmo3POE66fVC3sZ9kezRIWy4KS71M4Z4K3Zv1Bc
+
 ## Vangelsing
 http://www50.zippyshare.com/v/10210686/file.html
 
