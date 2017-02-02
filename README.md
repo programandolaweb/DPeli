@@ -1,5 +1,8 @@
 # DPeli
 
+## Yugioh Todas las Temporadas
+https://mega.nz/#F!7wlFEZYS!n978j2-jKaPTPhVBhDvzSQ
+
 ## Peliculas Varias
 https://mega.nz/#F!chxCyDJY!5q4-HeTl0zNUvCFtZfqfgg
 
