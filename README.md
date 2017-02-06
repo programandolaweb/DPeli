@@ -1,3 +1,7 @@
+Curso de Eventos y Jobs con Laravel 
+
+https://openload.co/f/BA_V-IueUPU/OPPI6U90UI4.rar
+
 Curso  Ilustración para no ilustradores Domestika 
 
 Ilustración para no ilustradores - Un curso de Mr. Kone, Ilustrador, Diseñador y Director de Arte
