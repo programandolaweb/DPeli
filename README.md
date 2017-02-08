@@ -1,4 +1,4 @@
-http://www.identi.org/posts/Tutoriales-Cursos/325806/Prepara-tu-curriculum-Vitae-V2B.html
+https://mega.nz/#!00YDWITb!LFNbMoJBeIs1TY1YIders5uvL9_DTLS9porDdIn5AIw
 
 Curso de Eventos y Jobs con Laravel 
 
