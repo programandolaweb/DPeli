@@ -1,24 +1,5 @@
-https://mega.nz/#!00YDWITb!LFNbMoJBeIs1TY1YIders5uvL9_DTLS9porDdIn5AIw
-
-Curso de Eventos y Jobs con Laravel 
-
-https://openload.co/f/BA_V-IueUPU/OPPI6U90UI4.rar
-
-Curso  Ilustración para no ilustradores Domestika 
-
-Ilustración para no ilustradores - Un curso de Mr. Kone, Ilustrador, Diseñador y Director de Arte
-
-Aprende los procesos y las técnicas básicas para ilustrar combinando nuevas tecnologías con procesos análogos
-
-https://1fichier.com/?29ke0s3ja6
-https://1fichier.com/?f4cprvcxlu
-https://1fichier.com/?draoh6qgpd
-https://1fichier.com/?xkovrp5lsp
-https://1fichier.com/?64qwetzo21
-
-Contraseña:
-www.descargasnsn.com
-
+Inframundo 
+http://uploaded.net/file/7zzg72bu
 
 Contenido Nuevo
 https://mega.nz/#F!YANwDSpD!gZ_2A2Cx1R6jA-dYRcMI8w
